@@ -1,0 +1,2 @@
+# premium-guild-banner-001-guild-banner-embroidery-design
+Stop stitching the same old banner designs—or losing your best ideas in scattered notes. The Guild Banner Embroidery Design Planner transforms your chaotic concept into a polished, stitch-ready blueprint—all inside Notion.  This template solves the pain of disorganized embroidery planning by centralizing all design elements (colors, threads, motifs
